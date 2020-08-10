@@ -1,1 +1,1 @@
-个人简历域名：https://ttmk1994.github.io/chenzhuo.github.io/
+https://ttmk1994.github.io/chenzhuo.github.io/
